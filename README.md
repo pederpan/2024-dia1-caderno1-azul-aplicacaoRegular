@@ -1,0 +1,1 @@
+# 2024-dia1-caderno1-azul-aplicacaoRegular
